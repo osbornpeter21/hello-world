@@ -2,5 +2,5 @@
 
 Hi all!
 
-I am on a quest to become a computer programer part time while I persue a carrer as a professional cyclist.
+I am on a quest to become a day trader and computer programer so I can work from home and support my family.
 
